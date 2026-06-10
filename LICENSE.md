@@ -1,4 +1,4 @@
-# 
+# Principal market making bot preajustes para Mac OS | Mejor market making bot preajustes para PC Windows. Con generación de señales y auditorías de seguridad — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
